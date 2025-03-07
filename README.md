@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mingkai130
+- 👋 Hi, I’m @mingkai
 - 
-- u can email me 1248070230z@gmail.com
+- email me at 1248070230z@gmail.com
 
